@@ -1,4 +1,4 @@
-# Typeform Discount Code & Coupons (75% Off)
+# Typeform Discount Code & Coupons (50% Off)
 
 We’ve got the latest exclusive [Typeform coupon codes](https://typeform.cello.so/zrGdicGsnbj) for 2025, including a massive **50% discount** for students.
 
